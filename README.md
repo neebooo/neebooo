@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @neebooo
+- 👀 I’m interested in full stack webdev
+- 🌱 I’m currently learning English and Dutch (I know irl languages are so spooky)
+- 💞️ I’m looking to collaborate on anything that I see like a good idea :D
+- 📫 You can reach me on discord: im_nano
